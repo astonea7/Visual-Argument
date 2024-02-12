@@ -6,8 +6,5 @@ After seeing this ad, I was upset knowing that non-Apple and Apple users alike w
 
 Some tools I used were Text, Color Picker, Paint, and Erase, Fill, Fuzzy Select, Select by Color, and Paths to make my vision happen. Fonts was another thing I wanted to work on because it would have been cool to match Apple’s font like Google/Android did in their #GetTheMessage campaign ads! I then got the idea to make it somewhat symmetrical and in nature and chose to incorporate the green and blue text bubbles into the mix themselves. I like that my new design is more clear and hopefully easier to understand without having much background knowledge on the issue! 
 
-https://www.theverge.com/2022/8/9/23297951/google-apple-rcs-adoption-campaign-getthemessage-blue-green-messages
-https://www.android.com/get-the-message/
-https://www.youtube.com/watch?v=N_B0riy__rw
-https://www.tiktok.com/@imsamkohl/video/7302131773155069214 (<-- update: RCS is coming in the next year!)
+https://www.youtube.com/watch?v=ED4es0-j8M4&t=3s ~~ https://x.com/android/status/1557041668234395650?s=46&t=sJ-TTqjyIK5XEroliBOtLw ~~ https://www.theverge.com/2022/8/9/23297951/google-apple-rcs-adoption-campaign-getthemessage-blue-green-messages ~~ https://www.android.com/get-the-message/ ~~ https://www.youtube.com/watch?v=N_B0riy__rw ~~ https://www.tiktok.com/@imsamkohl/video/7302131773155069214 (<-- update: RCS is coming in the next year!)
 
